@@ -1,3 +1,3 @@
 # NANO
 
-## A cooling vest for ballet dancer
+## Une veste refroidissante pour danseur et bien plus.
